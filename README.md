@@ -1,5 +1,5 @@
 # 👋 Hi, I’m @TateFowble
-- 👀 I like the code a lot of things
+- 👀 I like to code a bunch of things
 - 🌱 I have a website, check it out!
 - 💞️ I also have a minecraft server! play.starworksmc.us
 - 📫 How to reach me? Join my discord @ http://discord.tatewbs.com
